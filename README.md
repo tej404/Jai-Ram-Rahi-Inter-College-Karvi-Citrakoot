@@ -1,0 +1,1 @@
+# Jai-Ram-Rahi-Inter-College-Karvi-Citrakoot
